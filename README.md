@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Sivirino12
 - 👀 I’m interested in aprender
-- 🌱 I’m currently learning logica e programação
+- 🌱 I’m currently learning programação pela plataforma do DEVCLUB
 - 💞️ I’m looking to collaborate on conhecimento
 - 📫 How to reach me asivirino1@gmail.com 
 
